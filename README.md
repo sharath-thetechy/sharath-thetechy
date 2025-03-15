@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech
 - 🌱 I’m currently learning Cloud & Devops
 - 💞️ I’m looking to collaborate on cloud industry
-- 📫 How to reach me 
+- 📫 How to reach me -> sharathchandragupta193@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love music, Likes - Gradening, Nature Travel , Foodie, Slight OCD, Fun & Parties
 
